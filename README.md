@@ -2,11 +2,11 @@
 
 📫 How to reach me 
    
-   EMAIL:- vasubishnoi963@gmail.com
+   ⚡EMAIL:- vasubishnoi963@gmail.com
    
-   LinkedIn :- https://www.linkedin.com/in/vasu-bishnoi-2b4a91267/
+   ⚡LinkedIn :- https://www.linkedin.com/in/vasu-bishnoi-2b4a91267/
    
-   Instagram :- __vasu__29
+   ⚡Instagram :- __vasu__29
 
 Languages and Tools:
 1) Excel
